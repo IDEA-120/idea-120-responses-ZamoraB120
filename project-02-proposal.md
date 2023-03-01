@@ -1,0 +1,1 @@
+I plan on taking a picture of my bedroom from the perspective you would see it through zoom, then making the pictures move around on the wall and or animate something into the space, whatever works best.
